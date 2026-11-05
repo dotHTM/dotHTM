@@ -1,4 +1,4 @@
-Mike "dot" Cramer
+"dot" Cramer
 
 Bachelor's of Math from UT Arlington, 2007. An **Exact** B student.
 
